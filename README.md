@@ -1,2 +1,2 @@
 # vandiennguyen
-Personal website of Van Dien Nguyen |  Nguyễn Văn Diễn
+Personal website of Van Dien Nguyen (Nguyễn Văn Diễn)
